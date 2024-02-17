@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Yeetlord-lnx
 - 👀 I’m interested in your mom
 - 🌱 I’m currently learning javascript
-- 💞️ I’m looking to collaborate on one night stand
+- 💞️ I’m looking to collaborate on 
 - 📫 You can Add me on discord Yeetlord#1546
 - .............................................
 - .............................................
